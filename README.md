@@ -5,7 +5,7 @@ Mentre tutti affondavano in un mare di merda, tu ti sei arricchito da far schifo
 Sono sicura, non proverò rimorso:
 le tue azioni ti condannano, e io ti colpirò senza pietà.
 
-## Rinvenimento
+## Capitolo Primo: Rinvenimento
 
 Il professore rilesse il README[^1]:
 
